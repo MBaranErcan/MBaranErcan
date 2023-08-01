@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+My name is **Mustafa Baran Ercan**. I am a Computer Engineering student at TED University.
+
 <!--
 **MBaranErcan/MBaranErcan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
