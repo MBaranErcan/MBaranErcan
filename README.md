@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello there. 
 
 My name is **Mustafa Baran Ercan**. I am a Computer Engineering student at TED University.
 
