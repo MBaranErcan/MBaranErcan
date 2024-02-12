@@ -1,6 +1,6 @@
 ### Hello there. 
 
-![image_24de51ea](https://github.com/MBaranErcan/MBaranErcan/assets/102927124/e9befac2-e6ec-4761-9919-2c057ba5ffe7)
+![General Kenobi!](https://github.com/MBaranErcan/MBaranErcan/assets/102927124/aa16c2cb-f66f-46a2-8b85-a6f5e7126bec)
 
 
 <!--
