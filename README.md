@@ -1,6 +1,6 @@
 ### Hello there. 
 
-![image_24de51ea](https://github.com/MBaranErcan/MBaranErcan/assets/102927124/9a031145-ac5f-4c41-b9e5-b715c1faeab5)
+![image_24de51ea](https://github.com/MBaranErcan/MBaranErcan/assets/102927124/e9befac2-e6ec-4761-9919-2c057ba5ffe7)
 
 
 <!--
