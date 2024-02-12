@@ -1,6 +1,6 @@
 ### Hello there. 
 
-![5913_050_General_Grievous](https://github.com/MBaranErcan/MBaranErcan/assets/102927124/9ead035d-ea1e-43f9-b696-f2272f2adb6c)
+![image_24de51ea](https://github.com/MBaranErcan/MBaranErcan/assets/102927124/9a031145-ac5f-4c41-b9e5-b715c1faeab5)
 
 
 <!--
